@@ -1,5 +1,5 @@
 ### NIGERIA!
-![ME DA NIGERIA MAN](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.manufacturersnigeria.org%2FDGBlog_AboutMe&psig=AOvVaw2tZ4jchewFUHWb1546puQm&ust=1611850431559000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKDu7_bAvO4CFQAAAAAdAAAAABAD)
+Flag for me NIGERIA BRODDAAAAS
 <!--
 **seanbutbased/seanbutbased** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
